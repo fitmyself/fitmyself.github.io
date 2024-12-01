@@ -1,9 +1,9 @@
-- First-prize Academic Scholarship, 2023.
+- National Scholarship, Ministry of Education of the People's Republic of China, November 2019
 
-- Freshman Academic Scholarship, 2022.
+- First-prize Academic Scholarship, Hunan University, November 2020
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- National Scholarship, Ministry of Education of the People's Republic of China, November 2021
 
-- First-prize Enterprise Scholarship, 2021.
+- Outstanding Undergraduate Graduates of Hunan Province, Department of Education of the Hunan Province, May 2022
 
-- First-prize Academic Scholarship, 2019.
+- National scholarship for Postgraduates, Ministry of Education of the People's Republic of China, November 2024
